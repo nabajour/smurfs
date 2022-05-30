@@ -10,6 +10,8 @@ GRANTELBART!
 
 no more smurfs
 
+changed smurfs
+
 another smurf despite Grantelbart
 
 Belgian smurf is here
