@@ -16,3 +16,4 @@ Belgian smurf is here
 
 French smurf steals Belgian surf's French fries
 
+Belgian smurf has new Belgian fries
